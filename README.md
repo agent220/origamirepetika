@@ -1,7 +1,7 @@
 # Origami Repetika's Repository 
 Hello, and thank you for visiting the GitHub repository for my music project.
 
-[***Here's the markdown file where I post news and stuff***](https://github.com/agent220/origamirepetika/blob/main/index.md) 
+### [**Here's the markdown file where I post news and whatnot**](https://github.com/agent220/origamirepetika/blob/main/index.md) 
 
 #### Links
 
