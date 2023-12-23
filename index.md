@@ -1,4 +1,11 @@
 # Origami Repetika's Markdown File 
+**12/23/23**
+I cooked up a new profile banner on Logopit for my Twitter. It toots my own horn to 20 years of Origami Repetika. I'll be applying the new banner soon.
+![banner](https://github.com/agent220/origamirepetika/blob/main/media/20%20years%20Twitter%20banner.png) 
+Speaking of Twitter, I haven't been on Twitter much at all lately. I still regularly update lowdown and sub65 news on those accounts, but I've been taking a break from my main account as it seemed like the site was getting worse in a lot of ways. It's called "X" now, but to me it'll always be Twitter. I'll still use it to post Repetika updates, but yeah, haven't been as active as before on @origamirepetika. 
+
+~
+
 **12/21/23**
 On the final lap in the production of my next album. It's tentatively titled **Emerald Circus**. The Emerald part of the title gives a wink to the fun fact that it's already been 20 years since my first Repetika netlabel release... emerald is, in some traditions, the stone of a 20-year anniversary. And the Circus part.. well, to my old ears at least, the album as a whole comes off like a circus of sorts. It has a song about a rodeo of leaf blowers, a song about the world's greatest bad poet, two previously unreleased instrumentals that I've been hoarding for years while waiting to figure out what to do with them, an experimental piece consisting of a 16-minute adaption of Terry Riley's In C paired up with an ominous Shepard Tone, and even a cover of a Neil Young song! I haven't ended up with a collection of music like this one before. It's by far my favorite one yet and I very much look forward to submitting it to *(hint)* the netlabel that published my first ever netlabel release. More info to come soon! 
 
