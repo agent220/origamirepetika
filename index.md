@@ -2,7 +2,7 @@
 **01/01/24**
 New year, new update.. Yesterday I sent in Emerald Circus to the netlabel that will eventually be releasing it. *(more details on that and which netlabel it can be downloaded from when the time comes)*  I'm super grateful that the second half of 2023 was productive enough to have a full-length album's worth of music. 
 
-In other news, I hope the recent wave of inspiration and motivation continues on through 2024 so that I can hear what I come up with next. I'm thinking that if it does, I'll also have something available sometime this year on sub65. But we'll see. 
+In other news, I hope the recent wave of inspiration and motivation continues on through 2024 so that I can hear what I come up with next. I'm thinking that if it does, there'll also be something available sometime this year on sub65. But we'll see. 
 
 ~
 
