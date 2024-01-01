@@ -12,7 +12,7 @@ Hello, and thank you for visiting the GitHub repository for my music project.
 Got a multimedia project that needs royalty-free music? 
 Check my [***Free Music Archive Page***](https://freemusicarchive.org/music/Origami_Repetika) and use what you like.
 
-[***Learn about the Origami Republika network***](http://origami.teks.no/1/1.1/index.html) and perhaps join in the fun:D
+[***Learn about the Origami Republika network***](http://origami.teks.no/1/1.1/index.html) and perhaps join in on the fun:D
 
 ~
 
