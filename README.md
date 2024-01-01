@@ -20,4 +20,4 @@ Check my [***Free Music Archive Page***](https://freemusicarchive.org/music/Orig
 
 I manage a lobit netlabel called [sub65 media](https://bbis.us/~newform/sub65/) 
 
-I also manage an Internet radio program on [Mad Wasp Radio](https://MadWaspRadio.com) called [the lowdown](https://bbis.us/~newform/thelowdown/) which focuses on playing lobit music, but also plays pretty much anything sent in and/or found in the underground netlabel scene.
+I also manage an Internet radio program on [Mad Wasp Radio](https://MadWaspRadio.com) called [the lowdown](https://bbis.us/~newform/thelowdown/) which focuses on playing lobit music, but also plays pretty much anything sent in and/or found around the underground netlabel scene.
