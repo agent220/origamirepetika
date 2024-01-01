@@ -16,7 +16,7 @@ Check my [***Free Music Archive Page***](https://freemusicarchive.org/music/Orig
 
 ~
 
-#### *More links*
+#### More links
 
 I manage a lobit netlabel called [sub65 media](https://bbis.us/~newform/sub65/) 
 
