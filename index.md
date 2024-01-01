@@ -9,7 +9,7 @@ In other news, I hope the recent wave of inspiration and motivation continues on
 **12/23/23**
 I cooked up a new profile banner on Logopit for my Twitter. It toots my own horn to 20 years of Origami Repetika. I'll be applying the new banner soon.
 ![banner](https://github.com/agent220/origamirepetika/blob/main/media/20%20years%20Twitter%20banner.png) 
-Speaking of Twitter, I haven't been on Twitter much at all lately. I still regularly update lowdown and sub65 news on those accounts, but I've been taking a break from my main account as it seemed like the site was getting worse in a lot of ways. It's called "X" now, but to me it'll always be Twitter. I'll still use from time to time to post major Repetika announcements and any retweets of special interest, but yeah, haven't been as active as before on @origamirepetika. 
+Speaking of Twitter, I haven't been on Twitter much at all lately. I still regularly update lowdown and sub65 news on those accounts, but I've been taking a break from my main account as it seemed like the site was getting worse in a lot of ways. It's called "X" now, but to me it'll always be Twitter. I'll still use it from time to time to post major Repetika announcements and any retweets of special interest, but yeah, haven't been as active as before on @origamirepetika. 
 
 ~
 
