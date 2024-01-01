@@ -1,4 +1,11 @@
 # Origami Repetika's Markdown File 
+**01/01/24**
+New year, new update.. Yesterday I sent in Emerald Circus to the netlabel that will eventually be releasing it. *(More details on that and which netlabel it can be downloaded from when the time comes)*  I'm super grateful that the second half of 2023 was productive enough to have a full-length album's worth of music. 
+
+In other news, I hope the recent wave of inspiration and motivation continues through 2024 so that I can hear what I come up with next. I'm thinking that if it does, I'll also have something available sometime this year on sub65. But we'll see. 
+
+~
+
 **12/23/23**
 I cooked up a new profile banner on Logopit for my Twitter. It toots my own horn to 20 years of Origami Repetika. I'll be applying the new banner soon.
 ![banner](https://github.com/agent220/origamirepetika/blob/main/media/20%20years%20Twitter%20banner.png) 
