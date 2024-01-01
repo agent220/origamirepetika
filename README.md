@@ -12,7 +12,7 @@ Check my [***Free Music Archive Page***](https://freemusicarchive.org/music/Orig
 
 [***Learn about the Origami Republika Network***](http://origami.teks.no/1/1.1/index.html) and perhaps join in the fun:D
 
-##### More links
+#### *More links*
 
 I manage a lobit netlabel called [sub65 media](https://bbis.us/~newform/sub65/) 
 
