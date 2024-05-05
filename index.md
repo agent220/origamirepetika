@@ -1,4 +1,12 @@
 # Origami Repetika's Markdown File 
+**05/05/24**
+![sparklers](https://github.com/agent220/origamirepetika/blob/main/media/celebratorysparklers.jpeg) 
+It's been 20 effin' years since my first netlabel release! [Mini Oubum](https://archive.org/details/20k085), a three track ambient techno EP, was released by [20kbps rec.](https://20kbps.net) on the 5th of May, 2004. I still can't believe that it's been two full decades already. Time is flying by! Hopefully I'll get to squeeze out another 20. Planning to celebrate the occasion with Taco Bell tacos. They're having a special sale (five for $5) as today also happens to be Cinco De Mayo. 
+
+New music should be coming out soon enough. As mentioned in the previous post, Emerald Circus is in netlabel queue and will eventually be online. Also been working on another Emerald release. This one currently has the working title of **Emerald Campground** as so far these songs have campy kind of vibes. Many of them are rough around the edges and seem as though they're screaming at me to stay this way. Hoping to have this out on sub by the end of August. 
+
+~
+
 **01/01/24**
 New year, new update.. Yesterday I sent in Emerald Circus to the netlabel that will eventually be releasing it. *(more details on that, and which netlabel it can be downloaded from, when the time comes)*  I'm super grateful that the second half of 2023 was productive enough to have a full-length album's worth of music. 
 
