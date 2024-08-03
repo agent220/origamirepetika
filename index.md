@@ -1,6 +1,6 @@
 # Origami Repetika's Markdown File 
 **08/03/24**
-![Emerald Campground Artwork](https://github.com/agent220/blob/main/media/emeraldcampground.jpg) 
+![Emerald Campground Artwork](https://github.com/agent220/origamirepetika/blob/main/media/emeraldcampground.jpg) 
 My new album, [**Emerald Campground**, is now online on Sub65](https://archive.org/details/s65146)! It's the younger sibling of **Emerald Circus**, which should be available soon as it's currently sitting second place in [20kbps.net](https://20kbps.net)'s release queue. 
 Emerald Campground is unlike any of my other releases in that the raw vibes of the tracks inspired me to do something different and instead of mixing and EQing the tracks so that they'll all play together in a common bit rate, I went ahead and rendered each song to it's own bitrate in which the music sounds the best. This made postproduction delightfully easy this time. The bitrates fluctuate throughout the span of the nine songs, yet collectively, they present an interesting and enjoyable flow. It's the kind of album that plays super nicely at a comfortable volume through your favorite pair of headphones and also sounds great blasting through speakers too. 
 I also cooked up a little music video for one of the tracks, [Conversation Town](https://youtu.be/jhOjQ8nYVIw?si=49kDxjUbguE0htjy). 
