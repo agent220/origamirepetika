@@ -1,4 +1,12 @@
 # Origami Repetika's Markdown File 
+**08/03/24**
+![Emerald Campground Artwork](https://github.com/agent220/blob/main/media/emeraldcampground.jpg) 
+My new album, [**Emerald Campground**, is now online on Sub65](https://archive.org/details/s65146)! It's the younger sibling of **Emerald Circus**, which should be available soon as it's currently sitting second place in [20kbps.net](https://20kbps.net)'s release queue. 
+Emerald Campground is unlike any of my other releases in that the raw vibes of the tracks inspired me to do something different and instead of mixing and EQing the tracks so that they'll all play together in a common bit rate, I went ahead and rendered each song to it's own bitrate in which the music sounds the best. This made postproduction delightfully easy this time. The bitrates fluctuate throughout the span of the nine songs, yet collectively, they present an interesting and enjoyable flow. It's the kind of album that plays super nicely at a comfortable volume through your favorite pair of headphones and also sounds great blasting through speakers too. 
+I also cooked up a little music video for one of the tracks, [Conversation Town](https://youtu.be/jhOjQ8nYVIw?si=49kDxjUbguE0htjy). 
+
+~
+
 **05/05/24**
 ![sparklers](https://github.com/agent220/origamirepetika/blob/main/media/celebratorysparklers.jpeg) 
 It's been 20 effin' years since my first netlabel release! [Mini Oubum](https://archive.org/details/20k085), a three track ambient techno EP, was released by [20kbps rec.](https://20kbps.net) on the 5th of May, 2004. I still can't believe that it's been two full decades already. Time is flying by! Hopefully I'll get to squeeze out another 20. Planning to celebrate the occasion with Taco Bell tacos. They're having a special sale (five for $5) as today also happens to be Cinco De Mayo. 
