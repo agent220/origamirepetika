@@ -1,4 +1,10 @@
 # Origami Repetika's Markdown File 
+**11/19/24**
+![Emerald Waveforms](https://github.com/agent220/origamirepetika/blob/main/media/emeraldwaveforms.png) 
+Wrapping up yet another Emerald release. This one happens to be a four song EP called Emerald Waveforms. It's all retro computer music vibes. No guitars and only a tiny little bit amount of vocals...I promise. I'm hoping it'll be out by the end of this month. 
+
+~
+
 **08/03/24**
 ![Emerald Campground Artwork](https://github.com/agent220/origamirepetika/blob/main/media/emeraldcampground.jpg) 
 My new album, [**Emerald Campground**, is now online on Sub65](https://archive.org/details/s65148)! It's the younger sibling of **Emerald Circus**, which should be available soon as it's currently sitting second place in [20kbps.net](https://20kbps.net)'s release queue. 
