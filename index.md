@@ -1,4 +1,9 @@
 # Origami Repetika's Markdown File 
+**11/30/24**
+[Emerald Waveforms](https://archive.org/details/s65156) is now available on Sub65! I also transencoded the 40kbps vbr opus files to 320kbps mp3 files and put them up on [Free Music Archive](https://freemusicarchive.org/music/Origami_Repetika/emerald-waveforms). 
+
+~
+
 **11/19/24**
 ![Emerald Waveforms](https://github.com/agent220/origamirepetika/blob/main/media/emeraldwaveforms.png) 
 Wrapping up yet another Emerald release. This one happens to be a four song EP called Emerald Waveforms. It's all retro computer music vibes. No guitars and only a tiny little bit amount of vocals...I promise. I'm hoping it'll be out by the end of this month. 
