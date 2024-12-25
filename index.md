@@ -1,6 +1,6 @@
 # Origami Repetika's Markdown File 
 **12/25/24**
-![Emerald Night Light](https://github.com/agent220/origamirepetika/blob/main/media/enlcover.png) My new single, Emerald Night Light, was released today on [8 Ravens](https://8ravens.blogspot.com). With two full-length Emerald albums, and Emerald EP, and now an Emerald single, I can rest assured that I've celebrated the living sh!t out of my 20 year anniversary. The first Emerald release that I made, Emerald Circus, is looking like it won't be out until sometime in 2025...but that's just how things can be with netlabels... sometimes you just have to wait and wait. I'll be sure to keep y'all posted when that's up and ready. 
+![Emerald Night Light](https://github.com/agent220/origamirepetika/blob/main/media/enlcover.png) My new single, [Emerald Night Light](https://archive.org/details/8R193), was released today on [8 Ravens](https://8ravens.blogspot.com). With two full-length Emerald albums, and Emerald EP, and now an Emerald single, I can rest assured that I've celebrated the living sh!t out of my 20 year anniversary. The first Emerald release that I made, Emerald Circus, is looking like it won't be out until sometime in 2025...but that's just how things can be with netlabels... sometimes you just have to wait and wait. I'll be sure to keep y'all posted when that's up and ready. 
 
 ~
 
